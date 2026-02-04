@@ -1,1 +1,1 @@
-# planejamento_estrategico_TI
+# Planejamento Estrategico de TI
