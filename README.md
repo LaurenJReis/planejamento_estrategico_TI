@@ -1,1 +1,0 @@
-# Planejamento Estrategico de TI
